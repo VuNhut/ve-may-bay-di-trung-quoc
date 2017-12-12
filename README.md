@@ -5,7 +5,7 @@ Nhắc đến những địa điểm đi du lịch lớn nhất châu Á hay tr�
 
 Vậy nhắc đến hành trình khám phá Trung Quốc, bạn sẽ nghĩ đến đi du lịch ở nơi nào? Đây là một vấn đề cực kì quan trọng đối với du khách khi tìm hiểu <a href  = "http://vivatrantravel.vn/ve-may-bay-di-trung-quoc.html">giá vé máy bay đi Trung Quốc bao nhiêu</a>.
 
-<img src = "https://vemaybayairchina.net/wp-content/uploads/2016/12/ve-may-bay-di-trung-quoc-3.jpgf" />
+<img src = "https://vemaybayairchina.net/wp-content/uploads/2016/12/ve-may-bay-di-trung-quoc-3.jpg" />
 
 Trước khi phân vân điểm đến, bạn cũng nên nắm bắt những thông tin quan trọng về quốc gia này cho mình trước đã.
 
